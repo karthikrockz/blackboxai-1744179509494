@@ -1,2 +1,2 @@
-# blackboxai-1744179509494
-Built by https://www.blackbox.ai
+you can use it for ur college elections 
+you can also add it to your college pages
